@@ -1,1 +1,1 @@
-Your uploaded resumes will reflct in this folder
+Your uploaded resumes will reflect in this folder
